@@ -1,4 +1,4 @@
-### Hi there 👋<br>
+### Ola, eu sou o Rodrigo Teru Nakamura 👋<br>
 <br>
 <div align="center">
   <a href="https://github.com/Rodrigo-Teru">
